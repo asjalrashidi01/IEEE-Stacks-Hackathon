@@ -6,4 +6,4 @@ Moreover, the zip file also contains the video presentation.
 
 Sincerely,
 The Sidemen
-Asjal and Minhal
+(Asjal and Minhal)
